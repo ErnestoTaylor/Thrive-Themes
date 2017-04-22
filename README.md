@@ -25,9 +25,9 @@ One more thing which has made this product extremely popular is the built-in fea
 <h3>Lead Generation Built-in</h3>
 Even though all these themes are quite similar to some other contemporary WordPress themes on the market, they usually come with some outstanding additions such as landing pages or lead generation pages for example lead pages, download pages, and so on.
 <h4>Pricing</h4>
-At present Thrive Themes provides you options to purchase individual products along with<a href="https://www.youtube.com/watch?v=wQcNShJD2mY"> a single site license for just $49</a> and also an unlimited site license for only $67. Besides this, the product also offers membership packages along with personal as well as agency license.
+At present Thrive Themes provides you options to purchase individual products along with a single site license for just $49 and also an unlimited site license for only $67. Besides this, the product also offers membership packages along with personal as well as agency license.
 
-Nonetheless, <a href="https://thrivethemes.com/ultimatum/#getitnow">membership package will be the best option</a> in case you are searching for any package which provides you access to all of the products that are offered by Thrive Themes; a membership package will cost you as much as $147.
+Nonetheless, <a href="https://thrivethemes.com/ultimatum/#getitnow">membership package will be the best option</a> in case you are searching for any package which provides you access to all of the products that are offered by Thrive Themes; <a href="https://www.bloggingstart.com/thrive-themes-discount-code/">a membership package will cost you as much as $147</a>.
 
 With Thrive Themes there is no need to be concerned about the support for any product that you purchase from the Thrive Themes store. In case you are a member, you will get full accessibility to their knowledge base as well as an extensive range of tutorials including video tutorials.
 <h5>The verdict</h5>
