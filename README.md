@@ -1,7 +1,7 @@
 <h1>Thrive Themes - A Responsive WordPress Theme</h1>
 Perhaps you are contemplating on building an awesome looking site or you are trying to look for ways for making a slight change but the lack of technical knowledge is preventing you from doing this. In these types of situations, Thrive Themes will definitely be the ideal solution for all your issues.
 
-It is actually an all-in-one solution which will satisfy all your web development requirements.We recommend you to check <a href="https://www.bloggingstart.com/thrive-themes-discount-code/">thrive themes discount coupon</a> before you make any purchase to save upto 24% of the regular price
+It is actually an all-in-one solution which will satisfy all your web development requirements.We recommend you to check <a href="https://bloggingstart.com/thrive-themes-discount-guide/">thrive themes discount code</a> before you make any purchase to save upto 24% of the regular price
 <h2>Who is Thrive Themes for?</h2>
 The layout of this product is actually conversation based which is built for sites providing really valuable products. However, Thrive Themes is not suitable for large sites with plenty of articles but only for those sites which are offering services in a particular niche intended for a particular audience.
 
